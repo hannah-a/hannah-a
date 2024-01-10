@@ -2,7 +2,7 @@
 
 ### Hi I'm Hannah Armstrong (Also known as Hans like the guy from Frozen )
 
-:I started learning Website Developement because I only wanted to do welding for the art and not as a career. I quickly fell in love with the mixture between art and logic, creating something that looks good and making it functional. I should have known that this would be a good career path for me when I made my first portfolio website for my art using Weebly at 13. 
+I started learning Website Developement because I only wanted to do welding for the art and not as a career. I quickly fell in love with the mixture between art and logic, creating something that looks good and making it functional. I should have known that this would be a good career path for me when I made my first portfolio website for my art using Weebly at 13. 
 
 Currently I'm working on going to school so many of my projects revolve around my classes and assignments. It is very often that I get to create projects that I am interested and also give me an A! My degree has given me a **deep passion** for this field and a desire to delve deeper into Computer Science than I ever thought I would. 
 
